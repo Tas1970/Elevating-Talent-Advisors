@@ -21,7 +21,6 @@ As we embrace these changes, we must address a critical gap in the talent acquis
 3. [Enhancements to Talent Advisor Screening](#enhancements-to-talent-advisor-screening)  
 4. [Becoming a Recognized Talent Advisor in the Market](#becoming-a-recognized-talent-advisor-in-the-market)  
 5. [The Future of Talent Advisors](#the-future-of-talent-advisors)  
-6. [Hashtags](#hashtags)  
 
 ---
 
