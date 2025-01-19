@@ -1,4 +1,7 @@
 
+![Alt Text](https://github.com/Tas1970/Elevating-Talent-Advisors/blob/main/EmpowerTA.png)
+
+
 [Talent Acquisition with Google’s AI ](https://www.linkedin.com/pulse/elevating-talent-advisors-era-ai-google-search-tasneem-hassan-tas--o5ixc/?trackingId=7eIff0FhCOlZJd7TU2z2rg%3D%3D)
 
 
